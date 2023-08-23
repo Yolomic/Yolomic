@@ -2,7 +2,7 @@
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning how to die more effectively
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me Yolomic#8395
+- 📫 How to reach me yolomic69 on discord
 
 <!---
 Yolomic/Yolomic is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
