@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Yolomic
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning how to die more effectively
-- 💞️ I’m looking to collaborate on nothing
+- 💞️ I’m looking to collaborate on fun projects!
 - 📫 How to reach me yolomic69 on discord
 
 <!---
